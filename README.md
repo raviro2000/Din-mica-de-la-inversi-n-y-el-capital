@@ -1,1 +1,1 @@
-# Din-mica-de-la-inversi-n-y-el-capital
+# Dinámica de la inversión y el capital
